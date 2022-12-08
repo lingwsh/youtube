@@ -1,4 +1,4 @@
-# Simple Chinese Dumpling
+# Survival Guide for International Students：Simple Chinese Dumpling
 [![Simple Chinese Dumpling](https://img.youtube.com/vi/Nrdm72T-Fw8/0.jpg)](https://www.youtube.com/watch?v=Nrdm72T-Fw8)
 
 ## Ingredients
